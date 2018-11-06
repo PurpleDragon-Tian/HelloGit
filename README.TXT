@@ -1,0 +1,14 @@
+111111111111
+ereeerre
+DFDFFFFFFFFFF
+FDFDFD
+111111111
+dfdfd
+DFDFDDdfdfd1
+FDFDFDF
+qqqqqqqq
+DFJDK:WQ
+
+fdffjdkj
+DFDF
+本文档记录git学习历程。
